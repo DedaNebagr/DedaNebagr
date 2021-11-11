@@ -1,0 +1,1 @@
+👀 Jak tohle sakra funguje???
